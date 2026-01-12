@@ -1,0 +1,1 @@
+Para solicitar a eliminação de todos os seus dados associados à aplicação Mike Optidata, por favor envie um e-mail para [o seu e-mail, ex: migueljaimenhatuvejunior@gmail.com] com o assunto "Pedido de Eliminação de Dados". Iremos processar o seu pedido no prazo de 30 dias.
